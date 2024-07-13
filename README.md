@@ -4,6 +4,7 @@ a list of people who skidded vanish shit (open src shit, old and new)
 --
 # gigabyte ~ 1 
 https://www.youtube.com/watch?v=148NGjIkaU8&t
+|
 https://discord.gg/QjFKBt24
 
 his "flooder"

@@ -32,6 +32,7 @@ he banned me right before he said no proof, when i said i made it he banned me 2
 ![image](https://github.com/user-attachments/assets/b789af20-732a-4e91-86d5-5c5de32990f0)
 
 he was also too stupid to change the ui, because hes a skid
+
 ![image](https://github.com/user-attachments/assets/34a1a029-2312-4e82-8374-a15b81a7b744)
 
 --

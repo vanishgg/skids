@@ -1,5 +1,5 @@
 # skids
-a list of people who skidded vanish shit (open src shit)
+a list of people who skidded vanish shit (open src shit, old and new)
 
 --
 # gigabyte ~ 1 
